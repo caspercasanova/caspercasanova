@@ -1,8 +1,4 @@
-## I'm Nicholas 
-
-- Looking to work with a team of industrial techno creatives. 
-
-
+## Looking to work with a team of industrial techno creatives 
 
 <h3 align="left">Intrests:</h3>
     <p align="left">
